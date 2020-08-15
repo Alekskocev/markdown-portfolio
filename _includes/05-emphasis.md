@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I primarily **Direct Commercials & Documentaries** and **Shoot Photos for campaigns** I also know **HTML 5** and **CSS** as well as recently I learned **Javascript** 
